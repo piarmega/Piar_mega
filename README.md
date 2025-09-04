@@ -7,7 +7,7 @@
 
 @piar_mega #пиарчат #вз, #чат #vz #группа для #взаимного #пиара
 #Взаимные #подписки #пиар #телеграмм #youtube #tiktok #nft #подарки #gift 
-#telegram #телега #тг #tg  #PR
+#telegram #телега #тг #tg #PR #TGstat
 
 #market.tonnel.network
 #portals
