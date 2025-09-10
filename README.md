@@ -14,3 +14,5 @@
 #mrkt
 #fragment
 #sticker
+#stars
+#horton#mine#tikTok
