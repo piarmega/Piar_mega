@@ -5,9 +5,9 @@
 ![IMG_20250131_105928_039](https://github.com/user-attachments/assets/73f96a2e-3b04-4f2d-91ce-23fabc903168)
 
 
-@piar_mega #пиарчат #вз, #чат #vz #группа для #взаимного #пиара
+@piar #пиарчат #вз, #чат #vz #группа для #взаимного #пиара
 #Взаимные #подписки #пиар #телеграмм #youtube #tiktok #nft #подарки #gift 
-#telegram #телега #тг #tg #PR #TGstat #TikTok #youtube #insta #yandex #google #поиск #продвижение #реакции #просмотры #траффик #арбитраж #топор #прямойэфир #труха #недвижимость #дом #квартира #дача #машина #объявлений #доска #ton #fragment #хороший #лучший #best #top #топ #gift #звезды #promo #promotion #advertise #промо #advertisement
+#telegram #телега #тг #tg #PR #TGstat #TikTok #youtube #insta #yandex #google #поиск #продвижение #реакции #просмотры #траффик #арбитраж #топор #прямойэфир #труха #недвижимость #дом #квартира #дача #машина #объявлений #доска #ton #fragment #хороший #лучший #best #top #топ #gift #звезды #promo #promotion #advertise #промо #advertisement #pr #gram #iris #real
 
 #market.tonnel.network
 #portals
