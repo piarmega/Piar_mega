@@ -7,7 +7,7 @@
 
 @piar #пиарчат #вз, #чат #vz #группа для #взаимного #пиара
 #Взаимные #подписки #пиар #телеграмм #youtube #tiktok #nft #подарки #gift 
-#telegram #телега #тг #tg #PR #TGstat #TikTok #youtube #insta #yandex #google #поиск #продвижение #реакции #просмотры #траффик #арбитраж #топор #прямойэфир #труха #недвижимость #дом #квартира #дача #машина #объявлений #доска #ton #fragment #хороший #лучший #best #top #топ #gift #звезды #promo #promotion #advertise #промо #advertisement #pr #gram #iris #real
+#telegram #телега #тг #tg #PR #TGstat #TikTok #youtube #insta #yandex #google #поиск #продвижение #реакции #просмотры #траффик #арбитраж #топор #прямойэфир #труха #недвижимость #дом #квартира #дача #машина #объявлений #доска #ton #fragment #хороший #лучший #best #top #топ #gift #звезды #promo #promotion #advertise #промо #advertisement #pr #gram #iris #real #черный #black #белый #white
 
 #market.tonnel.network
 #portals
